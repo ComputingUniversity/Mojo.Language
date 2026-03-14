@@ -1,0 +1,1 @@
+- [Mojo Programming Language – Full Course for Beginners](https://youtu.be/5Sm9IVMet9c)
